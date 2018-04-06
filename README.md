@@ -1,2 +1,2 @@
 # OOP_ech
-EEEEECH
+Skusam, ci sa to da zrobit, jeeeeej
